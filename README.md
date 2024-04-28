@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Amirablanner
+- 👋 Hi, I’m Amir.A
 - 👀 I’m interested in Telecommunication & ICT & Industrial Automation & Energy Management 
 - 🌱 I’m currently learning any new Technology and Management documents.
 - 💞️ I’m looking to collaborate on Telecommunication & ICT & Industrial Automation & Energy Management projects
